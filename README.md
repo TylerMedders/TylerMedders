@@ -1,6 +1,6 @@
 # Tyler Medders
 
-Revenue Operations and Business Operations professional focused on CRM governance, pipeline operations, reporting, process improvement, and cross-functional execution.
+Revenue Operations and Business Operations professional with 3+ years of experience focused on CRM governance, pipeline operations, reporting, process improvement, and cross-functional execution.
 
 ## Featured Work
 
